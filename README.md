@@ -1,4 +1,3 @@
 # Community Classroom is OP
-
-- Kunal Kushwaha says that this community is amazing.
-- Kunal made this change
+my name is shutikshan madhur
+my name is madhur shutikshan
